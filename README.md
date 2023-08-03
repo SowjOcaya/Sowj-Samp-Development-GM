@@ -1,1 +1,1 @@
-# Sowj-Samp-Development-GM
+I put it here so that I can share with you the gms that I have and that are re-scripted, the others are not moved, so if you don't like something or there is an error, please don't disturb me, I won't add anymore
